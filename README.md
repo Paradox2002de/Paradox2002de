@@ -1,4 +1,4 @@
-oHello there,my name's Ezra and I'm 21 years old.
+Hello there,my name's Ezra and I'm 21 years old.
 I'm originally from Germany but I am fluid in English. 
 I am a Santanist!
 I love nature and 
