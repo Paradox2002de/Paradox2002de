@@ -1,12 +1,10 @@
-Hello there! My name's 
-Elijah or Eli for short.
-
-I'm born in October 2002.
-
-
+Hello there,my name's Ezra and I'm 21 years old.
+I'm originally from Germany but I am fluid in English. 
+I am a Santanist!
 I love nature and 
-everything that's connected to it 
+everything that's connected to it. I'm an individual who enjoys making story's in my head and writing them down.
+My Hobbys are hiking,crafting,reading and 
+listening to music.
 
+I'm a calm person and don't really give a damn about other people's opinions. Yet I have a very certain opinion on some more sensitive topics,so be warned and don't be snowflake please: -Neopronouns aren't valid in my opinion among other things.
 
-I enjoy crafting,reading,
-Music and creating story's in my head.
