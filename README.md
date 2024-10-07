@@ -1,4 +1,4 @@
-Hello there,my name's Ezra and I'm 21 years old.
+Hello there,my name's Ezra and I recently turned 22 years old.
 I'm from Germany,but I am fluid in English. 
 I am a Santanist!
 I love nature and 
@@ -15,4 +15,4 @@ Fandoms I'm in:
 Movies/Series;Gravity Falls,Superstore,Brooklyn 99,New Girl,The cabinet of curiosity's,Avatar:Pandora,Avatar :The four Elements,Alien(1979),The Wichtes(1990),Basically any Monty Phyton Movie,The fearless Vampire Killers (1967),A Series of Unforunate Events(2004.
 
 
-Books; Warrior Cats,Every Rick Riordan Book,Inkheart (and every following Book),The Hitchhiker's Guide to the Galaxy,Every Book of Mark Uwe Kling,Every Book OF N.K Jemisin.
+Books; Warrior Cats,Every Rick Riordan Book,Inkheart (and every following Book),The Hitchhiker's Guide to the Galaxy,Every Book of Mark Uwe Kling,Every Book of N.K Jemisin.
