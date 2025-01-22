@@ -1,6 +1,5 @@
 Hello there!
 My name's Ezra and I recently turned 22 years old.
-My Pronouns are U/S/A (this is a joke. laugh.)
 
 ☞I'm from Germany,but I am fluid in English.(And German...duh)
 
