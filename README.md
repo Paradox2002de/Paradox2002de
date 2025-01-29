@@ -2,7 +2,7 @@ Hello there! *insert obi wan meme*
 
 My name's Ezra and I recently turned 22 years old.
 
-☞I'm from Germany,but I am fluid in English.(And German...duh)
+☞I'm from Germany,but I am fluid in English.
 
 ☞I am a Santanist!(No I do not believe in Satan) 
 
