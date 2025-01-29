@@ -11,6 +11,6 @@ everything that's connected to it.
 
 ☞I love animals 
 
-☞ I usually am online on discord! just @dd me:Paradox2002_de
+☞ I usually am online on discord! just @dd me:R0tten2002
 
 
