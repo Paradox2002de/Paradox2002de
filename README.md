@@ -14,3 +14,4 @@ everything that's connected to it.
 ☞ I usually am online on discord! just @dd me:R0tten2002
 
 
+Also check out my strawpage!: https://rotten2002.straw.page
