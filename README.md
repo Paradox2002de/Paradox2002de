@@ -1,5 +1,4 @@
-My name's Ezra and I'm 22 years old.
-I'm from Germany,but I am fluid in English.
+My name's Ezzy, I'm 22 years old! 
 I love nature,animals
 everything that's connected to it. 
 
